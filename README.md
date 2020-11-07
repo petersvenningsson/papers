@@ -1,1 +1,1 @@
-# A collection of papers authored
+# A collection of materials authored
